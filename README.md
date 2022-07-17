@@ -1,1 +1,1 @@
-# OldPeopleProjectCV by Long
+# OldPeopleProjectCV
